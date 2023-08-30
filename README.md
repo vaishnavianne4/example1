@@ -5,3 +5,4 @@
 kindness is everything
 "Think before you speak"
 "you only live once"
+"keep pushing"
